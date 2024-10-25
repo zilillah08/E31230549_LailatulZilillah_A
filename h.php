@@ -1,1 +1,1 @@
-jancooo bisa ni kayaknya
+jancooo elis bisa ni kayaknya
